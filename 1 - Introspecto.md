@@ -89,3 +89,5 @@ Alguns cansam ou se esquecem de tudo
 Cansam ou se esquecem da vida pra sempre
 Nessa tarde...
 </pre>
+## Capa do single
+![Capa do single Introspecto](1 - Introspecto.png)
