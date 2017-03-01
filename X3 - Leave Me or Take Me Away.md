@@ -6,7 +6,7 @@
 What did I do to you
 For you to hurt me so much
 Is it ‘cause you have all things
-I couldn’t have too
+That I couldn’t have too
 
 Maybe they’re not in this world
 Or maybe I am nothing in this one
