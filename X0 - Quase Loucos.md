@@ -1,12 +1,12 @@
-# Quase Louc@s
+# Quase Loucos
 ## Letra e cifra
 (Jimmy Andrade)
 ### Versos
 <pre>
 C D
 Cabelos pro alto
-Eu ando descalÁo
-Por um caminho sem direÁ„o
+Eu ando descalço
+Por um caminho sem direção
 Aqui a vida se confunde
 
 Discursos rasgados
