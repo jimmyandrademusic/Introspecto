@@ -19,7 +19,7 @@ How much I'm crying ‘cause you hurt me
 And even so, I miss you
 But I know it’s too late
 For you to see that you were a fool
-I'm gonna run away
+I wanna run away
 </pre>
 ### Verses
 <pre>
