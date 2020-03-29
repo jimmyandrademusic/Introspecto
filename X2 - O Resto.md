@@ -45,6 +45,7 @@ Que sempre são falsos
 Junto os pedaços pra que possa lembrar
 Vultos vagam no espaço
 Procurando algo
+                           Bb
 Pra que eu possa me recuperar
 </pre>
 ### Refrão
@@ -56,19 +57,21 @@ Pra me reconstruir?
 
 Pra quem perde os seus passos
 Cair é tão fácil
-Sem perder suas razões
+E perder suas razões
 O que resta é tentar
 </pre>
 ### Outro
 <pre>
+Em Bb Am Gm 
 Sonho com teu abraço
 Me transformo em cacos
 Os pedaÁos cortam meu coração
 
-F Am Dm Gm G
+Em Bb Am Gm 
 Eu me sinto no espaço
 Procurando algo
-Pros meus pés não perderem o chão
+                              Bb/G  C/A   C
+Pros meus pés não perderem o chã... ã.... ão
 </pre>
 ### Refrão (1 tom acima)
 <pre>
