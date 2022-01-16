@@ -9,7 +9,7 @@ E eu prometo: não vou estragar as coisas
 Como eu fiz muitas vezes
 
 Pra começar, eu não vou repetir
-O que tudo alguÈm já disse, não vou falar
+O que tudo alguém já disse, não vou falar
 De amor, eu já falei demais
 Eu quero alguÈm que me traga mais...
 </pre>
