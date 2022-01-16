@@ -9,8 +9,8 @@ E eu prometo: não vou estragar as coisas
 Como eu fiz muitas vezes
 
 Pra começar, eu não vou repetir
-O que tudo alguÈm j· disse, n„o vou falar
-De amor, eu j· falei demais
+O que tudo alguÈm já disse, não vou falar
+De amor, eu já falei demais
 Eu quero alguÈm que me traga mais...
 </pre>
 ### Bridge
@@ -18,7 +18,7 @@ Eu quero alguÈm que me traga mais...
 Acho que dessa vez, (algo ou) tudo vai ser...
 (vai ser) Eu já cansei de escutar (diferente)
 Então desisto de entender
-Se é que alguÈm entende
+Se é que alguém entende
 </pre>
 ### Refrão
 <pre>
@@ -40,7 +40,7 @@ E nem me importo
 Com as palavras que antes me ofendiam
 
 Talvez estou melhor
-Talvez eu resisti a tudo que me cansa
+Talvez eu resisti a tudo que me cansava
 Só sei que...
 </pre>
 ### Estribilho
